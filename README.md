@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi vereyone my name is José i'm 30 years old and i studying tecnology industrial electronic
 
 <!--
 **Joselo432/Joselo432** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
